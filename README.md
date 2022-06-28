@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @MrBacon.
+- 
+- 👀 I’m interested in general I.T. engineering and games.
+- 
+- 🌱 I’m currently learning how web development works.
+- 
+- 💞️ I’m looking to collaborate on Game projects ;)
+- 
+- 📫 How to reach me: Discord Mr. Chocolate#9902 or email me @ kingslayerdt@gmail.com
